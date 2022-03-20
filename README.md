@@ -1,12 +1,11 @@
-### Olá 👋
+### Olá / Hi  👋
 
 ⚡⚡⚡
 
-Chrystiano Galdino
+Eng. Chrystiano Galdino
 
-Eng.Elétrica
-
-UFMG
+Mestrado em Eng.Elétrica - UFMG
+Qualidade da Energia
 
 ⚡⚡⚡
 
